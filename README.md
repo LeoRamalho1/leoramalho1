@@ -1,4 +1,9 @@
-## Hi there 👋
+## Hi leo lindo, tudo bem com você, você tem que tomar mais cuidado com a sua conta logada.
+
+Isso é perigoso, alguém poderia deletar sua conta...
+
+Isso é tudo bb, até a próxima, a qual eu espero que não tenha, porque vc é bonzinho e aprende rápido. beijinhos ❤😘 
+👋
 
 <!--
 **LeoRamalho1/leoramalho1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
