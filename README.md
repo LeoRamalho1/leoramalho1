@@ -1,4 +1,6 @@
-## Hi leo lindo, tudo bem com você, você tem que tomar mais cuidado com a sua conta logada.
+## Hi leo lindo, tudo bem com você?
+
+Você tem que tomar mais cuidado com a sua conta logada.
 
 Isso é perigoso, alguém poderia deletar sua conta...
 
